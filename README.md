@@ -1,1 +1,0 @@
-# LGEnsol_RDA_CHN
